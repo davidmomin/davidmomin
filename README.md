@@ -40,3 +40,5 @@ And More!
 💌Contract Us:
 Gamil: rainbowretouch@gmail.com
 Whatsapp : +8801710425181
+
+Skype:  https://join.skype.com/invite/wI5zUNe80BQR
